@@ -6,3 +6,11 @@ o sistema blablablalbalbblla
 - sadvkasfvajfṽj
 - sdlpsokdfvp~jfvjs
 - sd
+
+
+## RF02 - CAdastro atores 
+o sistema asighsdgdfgvdfafgv
+- nome 
+- nsds
+- xndcnzx
+- dahjadvjdsavb 
